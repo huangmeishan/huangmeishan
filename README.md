@@ -1,5 +1,5 @@
 ## The HMS Humiliation Archive
-1. [为了长江岸青水绿——安徽省马鞍山市矿山地质环境修复工作纪实]{https://web.archive.org/web/20191126114605/http://www.chinamining.org.cn/index.php?m=content&c=index&a=show&catid=120&id=30080}
+**1.[ 为了长江岸青水绿——安徽省马鞍山市矿山地质环境修复工作纪实](https://web.archive.org/web/20191126114605/http://www.chinamining.org.cn/index.php?m=content&c=index&a=show&catid=120&id=30080)**
 
 2019-11-06 10:22:45   来源：中国自然资源报
 
@@ -67,7 +67,7 @@
 　　祖祖辈辈生活在这里的村民们印象中，家乡从来没像现在这么美过。曾经难忍八段沟环境污染而搬出去的村民，现在经常往回跑。“过去钢渣满地，‘小乱污’企业东一个西一个，八段沟污水虫蝇满天飞。现在厂子全拆掉了，村子卫生搞好了，江水清凌凌的，我现在不愿意走了。”对长江岸线整治，72岁的村民潘克勤赞不绝口。
 
 
-2. [第50号关于关停笔架山绿松石矿山开采的建议（朱功文代表提出，市国土资源局主办）]{https://web.archive.org/web/20191126121729/http://masrd.gov.cn/show.asp?id=11496&WebShieldDRSessionVerify=kTvwU4uqqalTQoWVKmdO}
+**2. [第50号关于关停笔架山绿松石矿山开采的建议（朱功文代表提出，市国土资源局主办）](https://web.archive.org/web/20191126121729/http://masrd.gov.cn/show.asp?id=11496&WebShieldDRSessionVerify=kTvwU4uqqalTQoWVKmdO)**
 
 马鞍山市人大常委会门户网站   2016-06-21 14:45:56   来源：马鞍山市人大常委会办公室  查看答复意见
 
